@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @MarijaZuvela
+- 👀 I’m a passionate and driven Research Master of Brain and Cognitive Sciences with expertise in human social cognition, managing and presenting complex data, ensuring accuracy, and optimizing workflows.
+- 🌱 I’m currently learning data analyst tools. 
+- 💞️ I’m motivated to bring my interdisciplinary perspective and strong problem-solving abilities to dynamic roles, where I can contribute to organizational success and grow in diverse professional environments.
+- 📫 How to reach me zuvela.marija99@gmail.com
+- 😄 Pronouns: She/Her
+- ⚡ Fun fact: I've lived in 4 different coutnries :)
