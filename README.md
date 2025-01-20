@@ -4,4 +4,4 @@
 - 💞️ I’m motivated to bring my interdisciplinary perspective and strong problem-solving abilities to dynamic roles, where I can contribute to organizational success and grow in diverse professional environments.
 - 📫 How to reach me zuvela.marija99@gmail.com
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: I've lived in 4 different coutnries :)
+- ⚡ Fun fact: I've lived in 4 different countries :)
